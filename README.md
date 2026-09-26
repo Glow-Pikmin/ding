@@ -1,0 +1,1 @@
+If you're seeing this, you have either heard of ding.html through whatever channels, or if you're one of the people I have shared it with, you're probably technologically literate and/or trying to mod it.
